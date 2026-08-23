@@ -1,0 +1,2 @@
+# The-Invention-Secrecy-Act-of-1951-35-U.S.C.-181-188
+The Invention Secrecy Act of 1951 35 U.S.C. §§ 181–188  This statute empowers the U.S. government — specifically the USPTO and defense agencies — to:  ✔ review any patent application ✔ determine whether the subject matter is sensitive ✔ classify it under a secrecy order ✔ restrict disclosure ✔ restrict foreign filing ✔ restrict commercial use ✔ re
